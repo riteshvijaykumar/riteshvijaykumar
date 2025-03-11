@@ -1,5 +1,5 @@
 # 💫About Me :
-Here's a brief description you can use for your portfolio:
+Here's a brief description about me
 
 ---
 
